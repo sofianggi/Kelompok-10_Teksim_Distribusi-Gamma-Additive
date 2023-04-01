@@ -1,1 +1,0 @@
-# Kelompok-10_Teksim_Distribusi-Gamma-Additive
